@@ -9,7 +9,7 @@
 
 - 👯 Je souhaitre collarer et discuter tranquillement avec d'autre développeur sur discord 
 
-- 💬 Interrogez moi sur discord : WyZeSシ#5831
+- 💬 Interrogez moi sur discord : Blexxシ#2716
 
 - 📫 Comment me Joindre: Par Discord j'accepte tout le monde !
 
